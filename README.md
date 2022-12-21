@@ -18,7 +18,9 @@ Some sneak peaks:
 
 _P.S. This is never going to be on the Marketplace, so don't ask. If your wondering why, it's because of reasons stated perfectly in these videos:_
 _[TheMisterEpic's take on it](https://www.youtube.com/watch?v=ZAw0Rr6_ffc)_
+
 _[PotatoPie25's take on it](https://www.youtube.com/watch?v=d3ymwnMohFA)_
+
 _[Chr7st's take on it (God this guy pops up everywhere, not complaining though)](https://www.youtube.com/watch?v=RYH65IRapkI)_
 
 
