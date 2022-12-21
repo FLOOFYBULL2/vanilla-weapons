@@ -1,6 +1,6 @@
 # Vanilla Weapons
 
-### Before anything, I HAVE to thank Chr7st for his AWESOME tutorial on making Minecraft sword textures! [Click here to check them out!](https://www.youtube.com/@Chr7st)
+### Before anything, I HAVE to thank Chr7st for his _AWESOME_ tutorial on making Minecraft sword textures! [Click here to check them out!](https://www.youtube.com/@Chr7st)
 
 _Addon Description: Adds a few of custom weapons._
 
