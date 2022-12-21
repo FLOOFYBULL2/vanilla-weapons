@@ -16,7 +16,7 @@ Some sneak peaks:
 
 ![A sneak peak at the swords](/docs/images/alltheswords.png)
 
-_P.S. This is never going to be on the Marketplace, so don't ask. If your wondering why, it's because of reasons stated perfectly in these videos:_
+_P.S. This is never going to be on the Minecraft Marketplace, so don't ask. If your wondering why, it's because of reasons stated in these videos:_
 
 _[TheMisterEpic's take on it](https://www.youtube.com/watch?v=ZAw0Rr6_ffc)_
 
